@@ -1,2 +1,0 @@
-# ZOQA
-Womens Fashion
